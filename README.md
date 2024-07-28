@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SudarshanSinghRawat
+- 👀 I’m interested in the integration of all things technology related
+- 🌱 I’m currently learning electrical and computer science engineering vit chennai
+- 💞️ I’m looking to collaborate on fun projects increase your knowledge about everything
+- 📫 How to reach me :- Dont XD
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Allodoxaphobia is the fear of other people's opinions.
